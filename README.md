@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Css,Javascript**
 
-- 📫 How to reach me **cathu2121@gmail.com**
+- 📫 How to reach me **esthercatherink@gmail.com**
 
 - ⚡ Fun fact **Self teaching is what i personally love. Kudos to Virtual learners.**
 
